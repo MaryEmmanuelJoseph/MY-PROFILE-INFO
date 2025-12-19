@@ -62,6 +62,7 @@ It is a space where faith bears fruit through:
 
 🎥 **Mary Emmanuel Joseph**  
 🔗 https://www.youtube.com/@MaryemmanuelJoseph  
+https://www.facebook.com/profile.php?id=61585170146331
 
 📍 Canada | 🗓️ Joined December 2025  
 
