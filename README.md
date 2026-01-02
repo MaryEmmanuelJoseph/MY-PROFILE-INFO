@@ -1,94 +1,82 @@
 🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿
+<!-- =====================================
+     CAREFORMIX • OFFICIAL GITHUB PROFILE
+     ===================================== -->
 
-# 🌸 Mary Emmanuel Joseph
+<div align="center">
 
-🤍 **Sister in Christ by Faith | Christian Encouragement | Testimony-Based Faith Sharing**
+# CareForMix
 
-Welcome.  
-This space is created with love — for Christians, seekers, families, and every heart longing for peace.
+**Faith-Inspired Digital Media & Storytelling Platform**
 
-🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿
+Publishing original **drama series**, **movies**, and reflective content  
+rooted in real-life experience, integrity, and care.
 
-## 🕊️ A Place of Quiet Faith
+<br/>
 
-I am **Mary Emmanuel Joseph**, publicly known by my faith name.  
-My Christian journey began with my baptism on **October 25, 2018**, and continues through prayer, contemplation, and daily reflection inspired by **Ignatian spirituality**.
+<a href="https://careformix.com" target="_blank">
+  <img src="https://img.shields.io/badge/🌐%20Website-careformix.com-6A1B9A?style=for-the-badge&logo=google-chrome&logoColor=white" />
+</a>
+&nbsp;&nbsp;
+<a href="https://www.youtube.com/@CareForMix" target="_blank">
+  <img src="https://img.shields.io/badge/▶️%20YouTube-@CareForMix-C62828?style=for-the-badge&logo=youtube&logoColor=white" />
+</a>
 
-I walk humbly as a **Sister in Christ by faith**, sharing not from a place of authority, but from companionship — walking gently alongside others toward hope, healing, and light.
+</div>
 
-🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿
+---
 
-## 🌍 For Every Home
+## 🌿 About CareForMix
 
-This space welcomes:
+**CareForMix** is a faith-inspired digital media platform that publishes  
+original drama series, movies, testimonies, and reflective storytelling.
 
-✨ Christian homes and families  
-✨ Individuals seeking peace and clarity  
-✨ Hearts walking through silence or struggle  
-✨ Souls searching for meaning and truth  
+Our work focuses on:
+- Real-life human experiences  
+- Faith-aligned values expressed with humility  
+- Storytelling that encourages reflection, understanding, and hope  
 
-No labels are required here.  
-Only an open heart.
+CareForMix is a **content publisher**, not a commercial production agency.
 
-🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿
+---
 
-## 🌾 What Is Shared
+## 🎬 Media Publications
 
-📖 Gentle Christian encouragement  
-🕯️ Testimony from real life journeys  
-📜 Scripture reflections for daily living  
-🎬 Faith-based cinematic storytelling  
-🎙️ Soft spoken words for the soul  
+- 🎭 **Drama Series** — Original, values-driven storytelling  
+- 🎞️ **Movies** — Faith-inspired films rooted in real experiences  
+- 📖 **Testimonies & Reflections**  
+- 📺 **Sunday Messages & Visual Content**
 
-Every message is offered with respect, modesty, and love.
+All media shared under CareForMix is published as creative work  
+and offered for thoughtful viewing rather than commercial promotion.
 
-🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿
+---
 
-## 🌱 Fruitful Church
+## 🌱 Digital Presence Support
 
-**Fruitful Church** is a God-built faith expression —  
-not an institution, denomination, or organization.
+Alongside media publishing, CareForMix gently supports:
+- Churches and ministries  
+- Purpose-driven creators  
 
-It is a space where faith bears fruit through:
+through **organic content guidance and ethical online presence**,  
+without advertising pressure or promotional tactics.
 
-🌸 Testimony  
-🌸 Creative storytelling  
-🌸 Drama and reflection  
-🌸 Real human journeys with Christ  
+---
 
-🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿
+## 🤍 Core Values
 
-## 📺 YouTube Channel
+- Integrity over influence  
+- Faith lived, not marketed  
+- Respect for audience and creators  
+- Purposeful, human-centered storytelling  
 
-🎥 **Mary Emmanuel Joseph**  
-🔗 https://www.youtube.com/@MaryemmanuelJoseph  
-https://www.facebook.com/profile.php?id=61585170146331
+---
 
-📍 Canada | 🗓️ Joined December 2025  
+<div align="center">
 
-🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿
+**Aim High • Be Kind • Dare to Face Every Challenge**
 
-## 🤍 Guiding Values
+</div>
 
-🤲 Love before words  
-🕊️ Faith without pressure  
-🌿 Truth shared gently  
-🕯️ Peace over argument  
-✝️ Christ at the center  
-
-> *“Where words are gentle, hearts are healed.”*
-
-🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿
-
-## 🙏 A Closing Blessing
-
-May this space bring:
-
-🌼 Peace to your heart  
-🏡 Hope to your home  
-✨ Light to your path  
-
-All is shared humbly,  
-for God’s glory alone 🤍
 
 🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿🌿
